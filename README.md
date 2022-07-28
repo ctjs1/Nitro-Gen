@@ -1,2 +1,2 @@
-# Nitro-Gen
-Its A Nitro Gen Fucking Retard
+# Auto Rain Joiner 
+UwU Use It Fucker
